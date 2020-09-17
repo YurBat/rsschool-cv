@@ -53,5 +53,4 @@ I have no experience in serious work yet only some markup or coding online tests
 
 
 
-
 *This CV is permanently update*
