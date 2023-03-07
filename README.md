@@ -1,1 +1,1 @@
-# rsschool-cv
+https://yurbat.github.io/rsschool-cv/
